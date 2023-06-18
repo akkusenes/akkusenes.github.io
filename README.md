@@ -1,1 +1,1 @@
-# akkusenes.github.io
+Yakında  hep birlikteyiz abiler
